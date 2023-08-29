@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @punkmonke
+- 👋 Hi, I’m @punkmonke from solana
 - 👀 I’m interested in defi & NFTs
 - 🌱 I’m currently learning ZK & Stark 
 - 💞️ I’m looking to collaborate on NFTs projects
