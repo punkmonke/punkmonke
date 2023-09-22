@@ -12,3 +12,4 @@ I would like to learn to code feel free to dm me thank you
 Starknet focus
 Lp ekubo sithswap
 airdrop farm daily
+ersatz
