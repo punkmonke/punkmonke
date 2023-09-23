@@ -13,3 +13,4 @@ Starknet focus
 Lp ekubo sithswap
 airdrop farm daily
 ersatz
+daily check
