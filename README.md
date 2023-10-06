@@ -4,19 +4,4 @@
 - 💞️ I’m looking to collaborate on NFTs projects
 - 📫 How to reach me ...@punk_monke on twitter
 
-I would like to learn to code feel free to dm me thank you
-
-
-
-:///klear[2|
-Starknet focus
-Lp ekubo sithswap
-airdrop farm daily
-ersatz
-daily check
-Last month farm
-airdrop celestia
-short a mort
-new venom quest
-hamdoullah ca va
-francais etr
+30 up soon
