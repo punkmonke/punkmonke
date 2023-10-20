@@ -12,3 +12,4 @@ focus ekubo
 alt largué
 keep spirit
 its now
+simple
