@@ -4,15 +4,4 @@
 - 💞️ I’m looking to collaborate on NFTs projects
 - 📫 How to reach me ...@punk_monke on twitter
 
-back to basics
-not gonna sick
-gmgm
-navi problems
-focus ekubo
-alt largué
-keep spirit
-its now
-simple
-best
-pamp
-respect the
+back
