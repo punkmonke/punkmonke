@@ -11,3 +11,4 @@ ok
 opos
 ok
 normal
+allo
