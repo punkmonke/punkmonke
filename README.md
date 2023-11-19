@@ -12,3 +12,4 @@ opos
 ok
 normal
 allo
+nos 500 peepo 500
