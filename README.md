@@ -3,7 +3,3 @@ x- 👋 Hi, I’m @punkmonke from solana and OG
 - 🌱 I’m currently learning ZK & Stark 
 - 💞️ I’m looking to collaborate on NFTs projects
 - 📫 How to reach me ...@punk_monke on twitter
-w
-a
-a
-a
