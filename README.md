@@ -5,7 +5,3 @@
 - 📫 How to reach me ...@punk_monke on twitter
 Ss
 s
-fg
-g
-g
-g
